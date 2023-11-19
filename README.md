@@ -1,0 +1,1 @@
+# SafeSignal-a-ETHglobal-hackthon-project
